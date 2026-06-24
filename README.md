@@ -1,0 +1,1 @@
+# TRI_Report_Codel-Thailand_2026
